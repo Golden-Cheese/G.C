@@ -6,6 +6,8 @@
 
 ![Không Có Tiêu Đề286_20241129193615](https://github.com/user-attachments/assets/67e8ffaf-6754-426a-8996-403b04966d49)
 
+![gift-box-shadow-milk](https://github.com/user-attachments/assets/b0d0748e-be5e-4b0d-9b13-c39939d8eef8)
+
 ![tumblr_43094f71eaf02fb38594dbcc9b6b5654_105cb61e_250](https://github.com/user-attachments/assets/a37238d5-06d4-4eb6-a0aa-9ba9049f42db)
 ![shadow-milk-cookie](https://github.com/user-attachments/assets/92ca47fd-fa74-4610-8ee3-802862e42373)
 ![tumblr_eaa3ca9c353865ac695d26ef85123e5e_1ed419f3_640](https://github.com/user-attachments/assets/85e56713-678f-4669-9db8-78c67b65d366)
